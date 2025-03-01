@@ -3,7 +3,7 @@
 <a target="_blank"><img src="https://64.media.tumblr.com/5a54dde9605f7dae02270ccd6f9e9dc0/fcf30a7d52b1c113-8f/s250x400/f367524fe47517e21852c9ef603366ce6698038d.pnj"></a>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=femtanylx3-username&color=cccccc&style=plastic&label=femtanyl-lings+!!&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=femtanylx3-username&color=EDC8D5&style=plastic&label=femtanyl-lings+!!&abreviated=true">
 </p>
 
 <p align="center">!! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!<p align="center">
