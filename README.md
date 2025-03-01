@@ -2,11 +2,11 @@
 <a target="_blank"><img src="https://64.media.tumblr.com/b2a4f171804df87afae3be90d1845f04/ddb75fe1265919cb-b2/s250x400/fc7979f126a6795966e7a372b4cfbb640f8914b4.gif"></a>
 <a target="_blank"><img src="https://64.media.tumblr.com/5a54dde9605f7dae02270ccd6f9e9dc0/fcf30a7d52b1c113-8f/s250x400/f367524fe47517e21852c9ef603366ce6698038d.pnj"></a>
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=femtanylx3-username&color=cccccc&style=plastic&label=femtanyl-lings+!!&abreviated=true">
+</p>
+
 <p align="center">!! -- DO NOT COPY OR INSPO FROM MY PONIES, ESPECIALLY OC'S ! you will be blocked asap! -- !!<p align="center">
-
-![](https://komarev.com/ghpvc/?username=femtanylx3-username&color=cccccc&style=plastic&label=femtanyl-lings+!!&abreviated=true)
-
-<p align="center">nya ,, wip !!<p align="center">
 
 <p align="center">c + h ( plus kissing and booping ) is always on, dni just means not to talk to me ^_^ -- please don't crowd me unless we're friends or youre a friend of my friend . hiding is different because it's only a few people or even just one but crowding makes me overstimulated !!<p align="center">
 
