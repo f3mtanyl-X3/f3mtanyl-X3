@@ -4,7 +4,7 @@
 <p align="center"><a target="_blank"><img src="https://64.media.tumblr.com/5a54dde9605f7dae02270ccd6f9e9dc0/fcf30a7d52b1c113-8f/s250x400/f367524fe47517e21852c9ef603366ce6698038d.pnj"></a><p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=femtanylx3-username&color=EDC8D5&style=plastic&label=femtanyl-lings+!!&abreviated=true">
+  <img src="https://komarev.com/ghpvc/?username=femtanylx3-username&color=EDC8D5&style=plastic&label=MY+H0M1C1D3+C0UN7+!!&abreviated=true">
 </p>
 
 <p align="center"> D0 N0T C0PY 0R 1NSP0, FUCKW4D. <p align="center">
